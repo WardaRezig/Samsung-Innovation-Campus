@@ -1,1 +1,1 @@
-# Samsung-Innovation-Campus-X-GoMyCode-Algeria
+# Samsung Innovation Campus at GoMyCode Algeria
